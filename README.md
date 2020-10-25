@@ -3,4 +3,4 @@
 ## :confused: :confused: :confused: :confused: :confused: :confused: :confused:
 
 je suis un data scientist. ok loooooo. tout le monde a compris. opi on na ka fait koi. opi
-maintenant que les dés sont jetés, passons aux choses sérieuses.
+maintenant que les dés sont jetés, passons aux choses sérieuses. du coup avancons slmt
